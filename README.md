@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Deep Learning & NLP**  
 - 📫 How to reach me **devflyking@gmail.com**  
-- 📄 My Resume [https://drive.google.com/file/d/1QO16d_4xTppF7jxNGcka4bFBKtAignV3/view?usp=sharing](https://drive.google.com/file/d/1QO16d_4xTppF7jxNGcka4bFBKtAignV3/view?usp=sharing)
+- 📄 My Resume [https://drive.google.com/file/d/1YRBYMkaoMudDkri5On56M2mEy4w55MCP/view?usp=sharing](https://drive.google.com/file/d/1YRBYMkaoMudDkri5On56M2mEy4w55MCP/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
